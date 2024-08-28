@@ -51,8 +51,7 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-**hamyar electronics llc** 
-
-dubai , uae
-hamyar.ces@gmail.com  
+**hamyar electronics llc** \
+Dubai , UAE\
+hamyar.ces@gmail.com\
 +97142971147
